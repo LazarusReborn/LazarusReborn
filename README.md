@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Exploit Developtment
 - 📫 How to reach me ... lazarusreborr@gmail.com
 - Telegram @LazarusRebor
+- icq : https://icq.im/LazarusReborn
 
 
 <!---
